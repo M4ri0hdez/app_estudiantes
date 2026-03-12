@@ -1,0 +1,1 @@
+Tu día está lleno de pendientes, ideas y cosas que no quieres olvidar. Esta app no es solo un gestor de tareas: es tu laboratorio personal de organización. Aquí cada tarea entra como un experimento, se guarda como pendiente y se transforma en logro cuando la completas.
